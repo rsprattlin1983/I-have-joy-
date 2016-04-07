@@ -1,2 +1,2 @@
-# I-have-joy-
-First time
+The best preparation for tomorrow is doing your best.
+Rockshell Sprattlin
